@@ -1,1 +1,1 @@
-# Shaqyramyz.io
+# shaqyrty.io
